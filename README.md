@@ -2,4 +2,4 @@
 just another repository
 
 Hi Humans!
-Necesito que mi móvil funcione por favor y gracias 
+My mobile does not work because the screen is black but still on. I need help please.
